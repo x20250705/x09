@@ -14,6 +14,6 @@
 此外，智能推荐系统根据观影历史为用户推荐个性化内容，让你发现更多符合兴趣的影片。平台还注重用户隐私，采用加密技术保障安全，确保用户在享受影片的同时，不必担心隐私泄露。
 总之，日本AV免费平台凭借其免注册、免付费、高清内容、流畅播放和隐私保护，成为了影迷们理想的观影选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x09 ）</span>
 
 
